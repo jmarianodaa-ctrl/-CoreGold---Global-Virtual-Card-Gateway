@@ -63,4 +63,4 @@
 
 告别拒付卡号，拒绝连带封店！点击下方链接完成入驻，即刻体验企业级高效发卡与高通过率海外卡段：
 
-🚀 **[点击注册并登录 CoreGold 虚拟卡控制台](https://app.coregold.io/signup?invite_code=ADvlj9b)**
+🚀 **[点击注册并登录 CoreGold 虚拟卡控制台](https://app.coregold.io/signup?invite_code=ADvlj9b)** 
